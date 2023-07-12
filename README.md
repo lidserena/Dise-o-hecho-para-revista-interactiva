@@ -1,1 +1,1 @@
-# Diseño-hecho-para-revista-interactiva
+# Diseño-realizado-para-revista-interactiva
